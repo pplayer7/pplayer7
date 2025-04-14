@@ -1,1 +1,1 @@
-lol why do you need this file 
+ох, зря ты сюда полез
